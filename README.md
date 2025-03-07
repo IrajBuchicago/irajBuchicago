@@ -15,10 +15,10 @@ I am a Master of Public Policy candidate at the **Harris School of Public Policy
 ## Professional Experience
 
 ### Research Assistant, University of Chicago Booth School of Business
-- Worked under **Dr. Marianne Bertrand**, focusing on **gender disparities in education** and workforce outcomes.
+- Supporting **Dr. Marianne Bertrand**, focusing on **gender disparities in education** and workforce outcomes.
 
 ### Research Assistant, University of Chicago Social Sciences Division
-- Collaborated with **Dr. Eman Abdelhadi** on research exploring **behavioural patterns in local organizations and social norms**.
+- Supporting with **Dr. Eman Abdelhadi** on research exploring **behavioural patterns in local organizations and social norms**.
   
 
 ### Research Assistant, National University of Singapore
