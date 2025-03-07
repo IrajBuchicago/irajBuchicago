@@ -18,7 +18,7 @@ I am a Master of Public Policy candidate at the **Harris School of Public Policy
 - Supporting **Dr. Marianne Bertrand**, focusing on **gender disparities in education** and workforce outcomes.
 
 ### Research Assistant, University of Chicago Social Sciences Division
-- Supporting with **Dr. Eman Abdelhadi** on research exploring **behavioural patterns in local organizations and social norms**.
+- Supporting **Dr. Eman Abdelhadi** on research exploring **behavioural patterns in local organizations and social norms**.
   
 
 ### Research Assistant, National University of Singapore
